@@ -1,1 +1,0 @@
-# Lawrence-M-Reynolds.github.io
